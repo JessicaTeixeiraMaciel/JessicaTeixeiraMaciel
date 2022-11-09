@@ -6,4 +6,4 @@
 - 🚀 Fui uma das 25 selecionadas para o Devª, programa de formação em Java realizado pela Ada em parceria com a B3.
 - 😍 Sou apaixonada por lógica desde criança! Esse foi um dos motivos para eu decidir iniciar a transição de carreira.
 - 💬 Sou formada em inglês pela Universal English Course.
-- ➡️ Você pode me achar no LinkeIn [clicando aqui](https://www.linkedin.com/in/jessica-teixeira-maciel/).
+- ➡️ Você pode me achar no LinkedIn [clicando aqui](https://www.linkedin.com/in/jessica-teixeira-maciel/).
